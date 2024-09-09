@@ -8,4 +8,4 @@
 
 ### Kpop
 
-    I listen to a lot of kpop songs because the
+    I listen to a lot of kpop songs because they are energetic and they lift my mood that it makes me want to dance.
