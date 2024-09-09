@@ -1,4 +1,6 @@
-# Number 1
+# Anime
+
+    I've been watching anime since I was a kid. My favourite anime is One Piece because it's adventure.
 
 ## I don't like cake
 
