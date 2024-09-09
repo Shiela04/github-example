@@ -1,6 +1,6 @@
 # Anime
 
-    I've been watching anime since I was a kid. My favourite anime is One Piece because it's adventure.
+    I've been watching anime since I was a kid. My favourite anime is One Piece because it's adventure. I like the main characters because they have their own flaws.
 
 ## I don't like cake
 
